@@ -13,6 +13,6 @@ We have a new game called "**Fight For Hope**," a fighting game, and also a game
 
 ## Social Media
 Follow us on:
-- [Itch.io](https://delidas.itch.io)
+- [Itch.io](https://delideas.itch.io)
 - [YouTube](https://youtube.com/@Delideas)
 - [TikTok](https://www.tiktok.com/@delideas.ent)
